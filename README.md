@@ -2,6 +2,7 @@
 ### me chamo Leonardo Camacho🇧🇷✝️
 
 
+
 - Sou um aluno e estou estudando no curso do alura🎮
 - gosto da área de exatas, principalmente sobre matemática e química🧪
 
